@@ -17,3 +17,8 @@ Try an Espresso Martini on your next late-night outing, or order one for brunch 
 - 1 ounce espresso, freshly brewed (or cold brew concentrate)
 - 1/2 ounce simple syrup
 - Garnish: coffee beans
+
+## Steps
+1. Add vodka, coffee liqueur, espresso and simple syrup to a shaker filled with ice and shake until well-chilled.
+2. Strain into a chilled cocktail glass.
+3. Garnish with 3 coffee beans.
