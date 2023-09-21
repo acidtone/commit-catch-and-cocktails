@@ -1,1 +1,1 @@
-# commit-catch-and-cocktails
+# How to Make a Cocktail
