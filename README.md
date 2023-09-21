@@ -23,3 +23,8 @@ Try an Espresso Martini on your next late-night outing, or order one for brunch 
 1. Add vodka, coffee liqueur, espresso and simple syrup to a shaker filled with ice and shake until well-chilled.
 2. Strain into a chilled cocktail glass.
 3. Garnish with 3 coffee beans.
+
+---
+
+### Attributions
+- [Espresso Martini Photo](https://commons.wikimedia.org/wiki/File:Espresso_Martini_01.jpg) by [Arnaud 25](https://commons.wikimedia.org/wiki/User:Arnaud_25)
