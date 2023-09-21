@@ -2,7 +2,7 @@
 ![Photo of an Espresso Martini](espresso-martini.jpg)
 [Cocktail cheat sheet](https://www.liquor.com/recipes/espresso-martini-2/) by [Liquor.com](https://www.liquor.com)
 
- If you’re looking for a pick-me-up post-dinner, the Espresso Martini is here to jolt you awake with its boozy magical powers. The cocktail has been jumpstarting outings and extending nights ever since making its debut in the 1980s.
+If you’re looking for a pick-me-up post-dinner, the Espresso Martini is here to jolt you awake with its boozy magical powers. The cocktail has been jumpstarting outings and extending nights ever since making its debut in the 1980s.
 
 The now-classic drink was invented by British bartender Dick Bradsell at Fred’s Club in London. Legend has it that a "top model" asked for a drink that would “wake me up and f**k me up” at the same time. Bradsell complied, mixing vodka with espresso and coffee liqueur, and the Espresso Martini was born.
 
