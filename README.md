@@ -1,4 +1,5 @@
 # How to Make an Espresso Martini
+![Photo of an Espresso Martini](espresso-martini.jpg)
 [Cocktail cheat sheet](https://www.liquor.com/recipes/espresso-martini-2/) by [Liquor.com](https://www.liquor.com)
 
  If you’re looking for a pick-me-up post-dinner, the Espresso Martini is here to jolt you awake with its boozy magical powers. The cocktail has been jumpstarting outings and extending nights ever since making its debut in the 1980s.
