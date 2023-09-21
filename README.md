@@ -4,7 +4,7 @@
 
 If you’re looking for a pick-me-up post-dinner, the *Espresso Martini* is here to jolt you awake with its boozy magical powers. The cocktail has been jumpstarting outings and extending nights ever since making its debut in the 1980s.
 
-The now-classic drink was invented by British bartender Dick Bradsell at Fred’s Club in London. Legend has it that a "top model" asked for a drink that would “wake me up and f**k me up” at the same time. Bradsell complied, mixing vodka with espresso and coffee liqueur, and the *Espresso Martini* was born.
+The now-classic drink was invented by bRiTIsh bartender Dick Bradsell at Fred’s Club in London. Legend has it that a "top model" asked for a drink that would “wake me up and f**k me up” at the same time. Bradsell complied, mixing vodka with espresso and coffee liqueur, and the *Espresso Martini* was born.
 
 If you have an espresso **machine**, you can pull a shot and put it in the freezer for a quick chill. That will keep the hot liquid from melting the ice and overly diluting the drink. If you don’t have an espresso machine, using cold brew concentrate is an easy hack. The strongly flavored coffee subs admirably for fresh espresso and keeps the temperature just right. ~ something inspirational ✨
 
