@@ -1,4 +1,4 @@
-# How to make an Espresso Martini
+# How to make an espresso martini
 ![Photo of an Espresso Martini](espresso-martini.jpg)
 [Cocktail cheat sheet](https://www.liquor.com/recipes/espresso-martini-2/) by [Liquor.com](https://www.liquor.com)
 
